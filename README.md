@@ -6,3 +6,4 @@
 # Ik zit in de derde jaar
 #ik ben 26jaar
 #ik ben al 7 jaar in Nederland
+#ik ben 170 cm lang
